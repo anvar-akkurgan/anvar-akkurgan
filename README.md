@@ -1,0 +1,4 @@
+- 👋 Salom Meni ismim Anvar ( @anvar-akkurgan )
+- 👀 Men Linux, Python dasturlashga qiziqaman
+- 🌱 Men Tabiatni yoqtiraman
+- 📫 Men bilan Telegramda @Anvar_Alimov linki bilan topasiz!
